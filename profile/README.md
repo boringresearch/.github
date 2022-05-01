@@ -1,5 +1,6 @@
 ## Hi there 👋
 
+You might try to find a job, or try to have some fun while doing research. Let's study and do research together smartly!
 <!--
 
 **Here are some ideas to get you started:**
